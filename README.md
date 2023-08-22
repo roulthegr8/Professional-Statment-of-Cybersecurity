@@ -1,1 +1,1 @@
-# Professional-Statment-of-Cybersecurity
+# Professional-Statement-of-Cybersecurity
